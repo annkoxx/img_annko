@@ -40,7 +40,9 @@
 一系列都选好以后点开机即可  
 ![image](https://user-images.githubusercontent.com/50774548/142764441-c6883dbd-0c3b-4afb-9600-4a13d084072d.png)  
 
-## 好了教程结束
+## 既然都看到了这里那么插播一条新闻，telegram找[@nasnme_admin](https://t.me/nasnme_admin) 高质量AWS 32V,月抛DO,Azure200三天升级送面板，甲骨文等等账号都有，关注[频道](https://t.me/nasnme)或者[群组](https://t.me/nasn_me)进行获取通知。网站：https://nasn.me  
+
+# 好了教程结束
 
 
 
